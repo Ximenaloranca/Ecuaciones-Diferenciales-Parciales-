@@ -1,1 +1,0 @@
-# Ecuaciones-Diferenciales-Parciales-
